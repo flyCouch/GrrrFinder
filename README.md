@@ -1,7 +1,7 @@
 # GrrrFinder
 A multifunction tool whose primary purpose is to help you find "Grrr(s)".
 
-Copyright 2022
+Copyright 2022.
 
 I have to copyright because of some of the World's fools.
 
