@@ -15,7 +15,7 @@ A multifunction tool whose primary purpose is to help you find "Grrr(s)".
 
 It's a bit of humor and an educating project.
 
-Watch out for those Grrs!
+Watch out for those Grrrs!
 
 This will help you find them before they find you.
 
