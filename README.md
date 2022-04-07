@@ -13,7 +13,7 @@ GrrrFinder.
 
 A multifunction tool whose primary purpose is to help you find "Grrr(s)".
 
-It's a bit of humor and a educating project.
+It's a bit of humor and an educating project.
 
 Watch out for those Grrs!
 
