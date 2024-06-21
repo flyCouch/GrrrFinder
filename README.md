@@ -1,5 +1,5 @@
 
-Copyright 2022.
+Copyright Ron Lyttle 2022.
 
 I have to copyright because of some of the World's fools.
 
@@ -27,6 +27,15 @@ This is also a test platform to build a 3-Pin Operating System.
 1 Analog IN and 2 Digital INs.
 
 This is just the beginning of a long-term, low effort project.
+
+
+Some Irritating Fucks who have access to My Mind are making me add, truthfully, these aren't useful measurements (for reasons) and they are for Amusement Purposes Only.
+
+And I go to feed the Pigeons.
+
+And even if truly useful, the results would require a Degree worth of training to get understanding. I am not stopped from looking though. Who wants to fight Me?
+
+Wah wah wah, And No Medical Advice will be Implied or Given. Fuck Off, there's your advice!
 
 
 Yours Truly,
