@@ -1,7 +1,7 @@
 
 Copyright Ron Lyttle 2024.
 
-I have to copyright because of some of the World's fools.
+I have to copyright because of some of the World's Fools.
 
 But I don't have to charge you for use or distribution.
 
