@@ -33,7 +33,7 @@ Some Irritating Fucks who have access to My Mind are making me add, truthfully, 
 
 And I go to feed the Pigeons.
 
-And even if truly useful, the results would require a Degree worth of training to get understanding. I am not stopped from looking though. Who wants to fight Me?
+And even if truly useful, the results would require a Degree's worth of training to get understanding. I am not stopped from looking though. Who wants to fight Me?
 
 Wah wah wah, And No Medical Advice will be Implied or Given. Fuck Right Off and find an Actual M.D., there's your advice!
 
